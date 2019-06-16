@@ -1,5 +1,7 @@
 # 10-orthoplex
 
 See: https://en.wikipedia.org/wiki/10-orthoplex
-Artwork on Redbibble at: https://www.redbubble.com/people/rupertrussell
+Artwork on Redbubble at: https://www.redbubble.com/people/rupertrussell/works/39545959-10-orthoplex
+
+
 
